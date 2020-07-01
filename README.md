@@ -1,0 +1,2 @@
+# flimty
+Kemungkinan itu pasti ada! oleh karena itu sayangilah kesehatan kulit Anda dengan membeli klinskin yang asli dan bergaransi! Lalu berapa harga klinskin original? Harga resmi klinskin yang original adalah Rp. 98.000,-/batangnya. Jika Kamu menemukan orang yang menjual dibawah harga, itu patut dicurigai. Apakah produk tersebut asli? ataukah itu produk lama yang tidak laku tapi kemasan diganti! Hati-hati ya say, karena sekarang banyak orang yang menghalalkan segala cara untuk mendapatkan keuntungan.
